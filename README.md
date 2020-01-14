@@ -1,0 +1,1 @@
+# --nome-solicita-o-de-solicita-o-de-coment-rio-usos-thollander-actions-comment-pull-request-1.0
